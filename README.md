@@ -13,7 +13,7 @@
 
 - 📫 How to reach me : 📧 **"rrajput1172@gmail.com"**
 
-- ⚡ Fun fact : **let me think 😉**
+- ⚡ Fun fact : **"let me think 😉"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
